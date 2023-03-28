@@ -1,2 +1,0 @@
-# calse-profe-
-curso
